@@ -1,2 +1,2 @@
 # hello-world
-One of those formalities, rites of passages... you know the deal.
+Heyooo I'm jo i'm nonbinary and i really really like lofi rock n roll.
